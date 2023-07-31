@@ -1,1 +1,3 @@
-### Hello There, welcome to the Github of Smol Boy
+### Hello There, Smol Boy is not around at this time :>
+## So its just us now.
+# Enjoy your stay! :)
